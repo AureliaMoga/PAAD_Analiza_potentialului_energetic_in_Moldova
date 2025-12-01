@@ -1,0 +1,1 @@
+# PAAD_Analiza_potentialului_energetic_in_Moldova
